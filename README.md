@@ -1,1 +1,3 @@
 # CantinhoShortcuts
+
+First Release
