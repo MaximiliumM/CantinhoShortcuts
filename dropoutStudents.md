@@ -1,1 +1,0 @@
-Davi Takahashi Kurihara Motizuki
